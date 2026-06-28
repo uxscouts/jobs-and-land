@@ -67,6 +67,15 @@ Since you have hit the two-year mark, you are no longer a "beginner." You are a 
 
 Instead of writing...Write this instead:"Said hi to residents and opened doors""Maintained an authoritative yet welcoming lobby presence, cultivating long-term, high-trust relationships with residents.""Handled packages and mail""Managed high-volume package logging and secure distribution systems with 100% accuracy.""Dealt with building problems""Identified and defused building logistical issues calmly, serving as the primary point of contact for emergency services and vendors."
 
+The "No-Smack" Golden Rule
+
+It is a great instinct to pivot away from talking about your current bully of a super. In the luxury real estate world, the industry is incredibly tight-knit. Resident Managers and Supers on the UES all talk to each other, play poker together, and share union connections. If you badmouth your current boss, a hiring manager might worry you'll do the same to them.
+
+Keeping it strictly about your career growth and your neighborhood commute keeps you looking untouchable and highly professional.
+
+Get a good night's sleep, iron that suit, and hold your head high tomorrow. You are bringing two years of genuine care and a sharp look to a neighborhood that thrives on exactly that.
+
+
 
 
 
