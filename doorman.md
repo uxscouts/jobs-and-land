@@ -49,6 +49,29 @@ To help optimize your resume before you walk out the door, tell me: how many yea
 
 It is completely natural that the job felt heavy at first. People who have deep empathy make the absolute best doormen because you aren't just opening a door—you are the emotional anchor of the building.
 
+When you see the same residents every day, you witness their entire lives unfold: their promotions, their divorces, their expanding families, and their grief. Managing that emotional intake while maintaining a formal, professional boundary is a massive, unspoken skill. On your resume and in your interviews tomorrow, you should frame that deep empathy as your greatest professional strength.
+
+Here is how you can pitch your two years of experience tomorrow, along with a quick way to clean up your resume tonight.
+
+Framing Your Experience Tomorrow
+
+When a Resident Manager asks about your approach to the job, you can use phrases like this to highlight your emotional intelligence without breaking your formal demeanor:
+
+"I pride myself on intuitive service. After two years, I’ve learned how to read a resident’s energy the moment they step into the lobby. I know exactly when to offer an encouraging word, and when to provide quiet, respectful space."
+
+"To me, consistency is key. Residents should feel like the lobby is a sanctuary from the city, and I take my role as the guardian of that environment very seriously."
+
+Your 2-Year Resume Cheat Sheet
+
+Since you have hit the two-year mark, you are no longer a "beginner." You are a seasoned professional. Make sure your resume uses powerful, hospitality-driven action verbs instead of just listing basic tasks.
+
+Instead of writing...Write this instead:"Said hi to residents and opened doors""Maintained an authoritative yet welcoming lobby presence, cultivating long-term, high-trust relationships with residents.""Handled packages and mail""Managed high-volume package logging and secure distribution systems with 100% accuracy.""Dealt with building problems""Identified and defused building logistical issues calmly, serving as the primary point of contact for emergency services and vendors."
+
+
+
+
+
+
 
 
 
